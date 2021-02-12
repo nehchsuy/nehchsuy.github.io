@@ -1,3 +1,5 @@
-# Building....
+# Hsuy Nehc 
 
-[first post](_post/2021-2-11-Hello-World-md.md)
+> Hsuy Nehc is an SW/HW engineer living in Phoenix Area
+
+He can be reached at: nehchsuy AT icloud.com
