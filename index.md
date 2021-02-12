@@ -1,5 +1,5 @@
 # Hsuy Nehc 
 
-> Hsuy Nehc is an SW/HW engineer living in Phoenix Area
+> Hsuy Nehc is a SW/HW engineer living in Phoenix Area
 
 He can be reached at: nehchsuy AT icloud.com
